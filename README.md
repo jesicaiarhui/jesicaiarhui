@@ -1,5 +1,4 @@
-👋 ¡Hola! Soy Jesica Iarhui (https://github.com/jesicaiarhui/jesicaiarhui/blob/main/ChatGPT%20Image%203%20abr%202025,%2010_47_02.png?raw=true)
-
+👋 ¡Hola! Soy Jesica Iarhui
 
 🚀 Desarrolladora Web & Móvil en crecimiento
 
