@@ -1,4 +1,4 @@
-👋 ¡Hola! Soy Jesica Iarhui
+👋 ¡Hola! Soy Jesica Iarhui ChatGPT Image 3 abr 2025, 10_47_02.png
 
 🚀 Desarrolladora Web & Móvil en crecimiento
 
