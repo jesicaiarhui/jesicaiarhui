@@ -1,4 +1,4 @@
-👋 ¡Hola! Soy Jesica Iarhui  https://github.com/jesicaiarhui/jesicaiarhui/blob/main/banner.png?raw=true
+👋 ¡Hola! Soy Jesica Iarhui  (https://github.com/jesicaiarhui/jesicaiarhui/blob/main/banner.png?raw=true)
 
 🚀 Desarrolladora Web & Móvil en crecimiento
 
